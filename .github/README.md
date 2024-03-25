@@ -1,5 +1,5 @@
 <h2 align="center">
-    ──「 THUNDER MUSIC 」──
+    ──「 VARMA SARKAR 」──
 </h2>
 
 <p align="center">
